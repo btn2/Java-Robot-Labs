@@ -1,0 +1,1 @@
+Courtesy of Rev Dr Douglas R Oberle and Namco, September 28, 2006.

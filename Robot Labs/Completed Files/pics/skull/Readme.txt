@@ -1,0 +1,1 @@
+Courtesy of Rev Dr Douglas R Oberle, September 28, 2006.

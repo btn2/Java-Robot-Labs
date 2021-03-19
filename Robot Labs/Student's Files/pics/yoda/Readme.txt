@@ -1,0 +1,1 @@
+Courtesy of Rev Dr Douglas R Oberle and George Lucas, September 28, 2006.
